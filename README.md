@@ -26,7 +26,7 @@
 
 ### Link Demo Website : https://ardiiman.contohdomain.com/
 
-### Link Demo Youtube : https://www.youtube.com/channel/UCdFgY_0msM_DiOgdjM9Xu3g
+### Link Demo Youtube : https://www.youtube.com/watch?v=4B9kpH0peEI&feature=youtu.be
 
 ### Laporan PDF : https://drive.google.com/drive/folders/1sUG2vShCW0Y9OiZV2FogRce3nP9bwQ6i?usp=drive_link
 
